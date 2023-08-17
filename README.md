@@ -5,3 +5,4 @@ Repository ini digunakan sabagai sayembara pencaraian volunter untuk pembuatan a
 
 Berikut daftar Volunter yang diterima:
 - Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+- Mughni Rahmat, [LinkedIn](https://www.linkedin.com/in/mughni-rahmat/)
